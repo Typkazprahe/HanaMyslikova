@@ -7,5 +7,11 @@ However I can tell you more about me and what I like to do.
 Besides animation, I enjoy engaging in several other activities. Of all these, my favorites are gaming, painting, and dancing. I can be a very energetic person with understanding for everyone. 
 
 In my youth, I was incredibly athletic, engaging in basketball for a span of nine years, participating in soccer for two, and presently immersing myself in the art of Latin American dancing.
+
 <img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/e57d8d46-cefe-4df8-a04b-a0ccc4965097" width="500" height="350">
 
+
+
+During my free moments, when all I wanna do is relaxation, I thoroughly enjoy indulging in gaming. A passion that has captivated me since the tender age of four. That also leads to my next hobbie which is video editing. My primary focus involves creating highlights from gaming sessions with friends, and subsequently crafting humorous videos from those moments.
+
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/7fd74bfd-0f68-4b7b-b933-022d74d11090" width="500" height="350">
