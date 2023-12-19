@@ -15,3 +15,12 @@ In my youth, I was incredibly athletic, engaging in basketball for a span of nin
 During my free moments, when all I wanna do is relaxation, I thoroughly enjoy indulging in gaming. A passion that has captivated me since the tender age of four. That also leads to my next hobbie which is video editing. My primary focus involves creating highlights from gaming sessions with friends, and subsequently crafting humorous videos from those moments.
 
 <img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/7fd74bfd-0f68-4b7b-b933-022d74d11090" width="500" height="350">
+
+
+One of my more creatively driven passions is cosplay. With a deep appreciation for movies and games, I took the opportunity to dive into the world of Comiccon when it arrived in Prague. I started to making costumes of characters from games and movies.
+
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/0cafc5b5-3a37-4094-b5fd-f0ba66999f37" width="280" height="480">
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/869da73e-6278-4ac5-b573-6006c9ff92cc" width="280" height="480">
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/f8ad1389-bece-4d74-b230-d53dd35be382" width="280" height="480">
+
+
