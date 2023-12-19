@@ -1,3 +1,5 @@
 # English for Designers
 
-- [First Impression](02-first-impression)
+- [About](about/index.md) 
+- [Work](work/index.md) 
+- [Writing](writing/index.md)
