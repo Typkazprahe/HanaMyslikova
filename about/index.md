@@ -12,9 +12,12 @@ In my youth, I was incredibly athletic, engaging in basketball for a span of nin
 
 
 
+
 During my free moments, when all I wanna do is relaxation, I thoroughly enjoy indulging in gaming. A passion that has captivated me since the tender age of four. That also leads to my next hobbie which is video editing. My primary focus involves creating highlights from gaming sessions with friends, and subsequently crafting humorous videos from those moments.
 
 <img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/7fd74bfd-0f68-4b7b-b933-022d74d11090" width="500" height="350">
+
+
 
 
 One of my more creatively driven passions is cosplay. With a deep appreciation for movies and games, I took the opportunity to dive into the world of Comiccon when it arrived in Prague. I started to making costumes of characters from games and movies.
