@@ -34,3 +34,4 @@ Despite thinking that I've found my passion, I'm still grappling with the challe
 <img src="https://github.com/Typkazprahe/HanaMyslikova/assets/149475635/35d1d1dd-f6b7-4825-90f9-ad11fe3bf3f5" width="300" height="300">
 <img src="https://github.com/Typkazprahe/HanaMyslikova/assets/149475635/46bbd89b-c86e-4c8b-9da8-6a314b9c3d31" width="300" height="300">
 
+As I ponder my future, I sense a lingering uncertainty. I find myself unsure of the specific path I wish to tread, yet I am open to delving into various avenues, just as I am prepared to embark on a journey of self-discovery.
