@@ -5,4 +5,4 @@
 - [About](about/index.md) 
 - [Work](work/index.md) 
 - [Writing](writing/index.md)
-- [Storytelling](process/index.md)
+- [Storytelling](process.md)
