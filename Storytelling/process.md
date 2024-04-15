@@ -27,8 +27,22 @@ Collector's Editions and Variants: Marvel occasionally releases collector's edit
 
 Promotional and Giveaway Comics: Comic books that were given away as promotional items or part of special events may also be rare, especially if they were distributed in limited quantities or are no longer in circulation.
 
-### Marvel Comic Books
-Marvel Comics is one of the most iconic and influential comic book publishers in the world. Known for its diverse roster of superheroes, intricate storytelling, and interconnected universe, Marvel has captured the imagination of readers for decades.
+### The rarest Marvel comics
+While there are numerous rare comic books out there, I'll highlight the top three and provide some insight into their market values.
 
-One of Marvel's defining features is its shared universe, where characters and events from different titles coexist and often intersect. This interconnectedness allows for epic crossovers, team-ups, and story arcs that span multiple series.
+On third place we have Amazing Fantasy #15 that is worth more than $1,000,000. This comics is from the year 1962 and is mainly that rare thanks to the first appearance of Spiderman.
+
+On second place is Marvel Comics #1 from the year 1939 and is known as the first book in the history of the Marvel Universe, Marvel Comics #1 is a far cry from modern superhero comics, but it holds an important place in the comic industry and the genesis of Marvel. A special proof copy sold for well over two million dollars, with the next highest-priced copy going for 1.26 million dollars.
+
+And the rarest is Captain America Comics #1 from the year 1941. Cap's first appearance, telling the story of weakling Steve Rogers being given the super soldier serum and becoming Captain America, the US's greatest soldier of WWII. Captain America Comics #1 not only birthed the legend that is Captain America, but showed that even in the Golden Age, comics were political. When Cap made his debut, most Americans didn't want to fight the Nazis, but Jewish creators Simon and Kirby made a statement with his book. Copies can go for as high as two million dollars.
+
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/91439443-4b70-4c53-a20b-764ea998d5ea" width="300" height="430">
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/4ac140de-8caf-4bf7-8122-b270420a8786" width="300" height="430">
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/9f094037-7072-46a6-b16c-336dcd58c0a2" width="300" height="430">
+
+### Comic books hold a special place in my future plans
+I aspire to own at least one comic book dating back to Marvel's early days, as well as to collect vintage issues featuring beloved characters like Doctor Strange or Spider-Man.
+
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/de3a5e3c-b6ad-4c89-852c-010e1e292ce7" width="400" height="530">
+<img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/97131f75-332b-4342-a55f-6b11ab6956b9" width="400" height="530">
 
