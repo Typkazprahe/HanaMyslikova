@@ -9,6 +9,7 @@ I enjoyed every single comic book i read since then and decided to find out more
 Marvel Comics, like many other comic book publishers, have certain issues or editions that are considered rare and highly sought after by collectors. The rarity of a comic book can be influenced by various factors, including low print runs, special editions, significant historical importance, or iconic first appearances. Here are some examples of rare Marvel comics:
 
 Key First Appearances: Comic books that feature the first appearance of a major character are often highly coveted by collectors. For example, "Amazing Fantasy #15" is incredibly rare and valuable because it marks the debut of Spider-Man, one of Marvel's most iconic characters.
+
 <img src="https://github.com/Typkazprahe/english-for-designers/assets/149475635/91439443-4b70-4c53-a20b-764ea998d5ea" width="300" height="430">
 
 
