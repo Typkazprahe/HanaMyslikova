@@ -6,3 +6,4 @@
 - [Work](work/index.md) 
 - [Writing](writing/index.md)
 - [Storytelling](Storytelling/process.md)
+- [Thesis](06-Thesis/index.md)
