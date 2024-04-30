@@ -8,4 +8,3 @@
 - [Storytelling](Storytelling/process.md)
 - [Thesis](06-Thesis/index.md)
 - [Year in review](07-Year-in-review/index.md)
-- [test](test/index.md)
